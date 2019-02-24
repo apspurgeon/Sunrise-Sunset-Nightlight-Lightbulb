@@ -1,1 +1,1 @@
-Sunrise-Sunset-Nightlight-Lightbulb
+Sunrise-Sunset-Nightlight-Lamp
